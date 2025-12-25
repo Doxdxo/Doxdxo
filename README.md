@@ -1,7 +1,7 @@
 ![](https://ik.imagekit.io/22tifjcqh/Untitled108_20251211100433.png)
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀![](https://ik.imagekit.io/22tifjcqh/Untitled114_20251211104754.png)
 
-⠀⠀⠀⠀⠀⠀⠀![](https://ik.imagekit.io/22tifjcqh/Untitled113_20251211104034.png) ![](https://komarev.com/ghpvc/?username=Doxdxo&color=18337C&label=✦_No_mind_to_think。&style=flat-square) ![](https://ik.imagekit.io/22tifjcqh/Untitled113_20251211104037.png?updatedAt=1765420853095)
+![](https://ik.imagekit.io/22tifjcqh/Untitled113_20251211104034.png) ![](https://komarev.com/ghpvc/?username=Doxdxo&color=18337C&label=✦_No_mind_to_think。&style=flat-square) ![](https://ik.imagekit.io/22tifjcqh/Untitled113_20251211104037.png?updatedAt=1765420853095)
 
 ![](https://ik.imagekit.io/22tifjcqh/Untitled107_20251211100009.png)
 ![](https://ik.imagekit.io/22tifjcqh/Untitled114_20251211104749.png)
