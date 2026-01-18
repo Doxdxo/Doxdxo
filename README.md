@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/cq3kib.png)
+![](https://files.catbox.moe/hueyil.png)
 ![](https://files.catbox.moe/kyeyhw.png)
 [![](https://files.catbox.moe/vycyxw.png)](https://xneogim.straw.page)
 [![](https://files.catbox.moe/f4mnrp.png)](https://d0zing.atabook.org/)
