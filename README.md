@@ -21,9 +21,8 @@
 </p>
 
 <br clear="left">
-<br>
 <p align="center">
-<img src="https://files.catbox.moe/2oz7t6.png" width="850" alt="Profile Banner">
+<img src="https://files.catbox.moe/muxzo5.png" width="850" alt="Profile Banner">
 </p>
 <p align="center">
 $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME ME OUT}} \ \color{#A05C96}{\Large\textsf{FOR THE TYPE QUIRKS IT'S}} \ \color{#FA8CC0}{\Large\textsf{A REF TO THE MANGA I SWEAR}} $$
