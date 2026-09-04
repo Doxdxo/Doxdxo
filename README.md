@@ -10,7 +10,7 @@
   <br><br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
   <br>
-  𝕴f⠀⠀i'm⠀⠀couraged⠀⠀enough,⠀⠀i⠀⠀would⠀⠀most⠀⠀likely⠀⠀come⠀⠀up⠀⠀first⠀⠀and⠀⠀c+h!⠀⠀𝕴f⠀⠀I⠀⠀don't,⠀⠀I⠀⠀might⠀⠀not⠀⠀be in⠀⠀the⠀⠀mood⠀⠀atm⠀⠀or⠀⠀too⠀⠀shy...⠀⠀𝕴'd⠀⠀appreciate⠀⠀if⠀⠀𝙮𝙤𝙪⠀⠀interact⠀⠀instead!ㅤ♡
+  𝕴f⠀⠀i'm⠀⠀couraged⠀⠀enough,⠀⠀i⠀⠀would⠀⠀most⠀⠀likely⠀⠀come⠀⠀up⠀⠀first⠀⠀and⠀⠀c+h!⠀⠀(⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠)⠀⠀𝕴f⠀⠀I⠀⠀don't,⠀⠀I⠀⠀might⠀⠀not⠀⠀be in⠀⠀the⠀⠀mood⠀⠀atm⠀⠀or⠀⠀too⠀⠀shy...⠀⠀𝕴'd⠀⠀appreciate⠀⠀if⠀⠀𝙮𝙤𝙪⠀⠀interact⠀⠀instead!ㅤ♡
   <br><br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
     
