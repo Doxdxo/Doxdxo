@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/vljteg.png" width="950" alt="Profile Banner">
+<img src="https://files.catbox.moe/qn46os.png" width="950" alt="Profile Banner">
 </p>
 
 <p align="left">
@@ -7,19 +7,27 @@
   <img src="https://files.catbox.moe/up55uk.png" width="470"
   <br>
   𝕳ai⠀⠀hai⠀⠀hai⠀⠀hello⠀⠀!!(⁠≧⁠▽⁠≦⁠)⠀⠀𝕴⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me!⠀⠀𝕳owever,⠀⠀please⠀⠀only⠀⠀do⠀⠀so⠀⠀when⠀⠀i'm⠀⠀aloneㅤ~♡
-  <br><br>
+  <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
   <br>
-  𝕴f⠀⠀i'm⠀⠀couraged⠀⠀enough,⠀⠀i⠀⠀would⠀⠀most⠀⠀likely⠀⠀come⠀⠀up⠀⠀first⠀⠀and⠀⠀c+h!⠀⠀(⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠)⠀⠀𝕴f⠀⠀I⠀⠀don't,⠀⠀I⠀⠀might⠀⠀not⠀⠀be in⠀⠀the⠀⠀mood⠀⠀atm⠀⠀or⠀⠀too⠀⠀shy...⠀⠀𝕴'd⠀⠀appreciate⠀⠀if⠀⠀𝙮𝙤𝙪⠀⠀interact⠀⠀instead!ㅤ♡
-  <br><br>
+  𝕾𝙚𝙭𝙪𝙖𝙡⠀⠀&⠀⠀𝙠𝙮𝙨/𝙠𝙢𝙨⠀⠀𝙖𝙧𝙚⠀⠀𝙤𝙣𝙡𝙮⠀⠀𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚d⠀⠀𝙬𝙞𝙩𝙝⠀⠀𝙛𝙧𝙞𝙚𝙣𝙙𝙨.⠀⠀𝕹o⠀⠀exceptions,⠀⠀cross⠀⠀that⠀⠀line⠀⠀and⠀⠀i'm⠀⠀done⠀⠀talking!⠀⠀(⁠╥⁠﹏⁠╥⁠)
+  <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
     
   <br>
-  dont slime me out for the typing quirk its a ref to the manga i swear.
+  𝖂2𝙞⠀⠀at⠀⠀all⠀⠀cost!⠀⠀𝕴⠀⠀am⠀⠀never⠀⠀on⠀⠀pt⠀⠀100%⠀⠀of⠀⠀the⠀⠀timen⠀⠀Usually,⠀⠀I'm⠀⠀either⠀⠀playing,⠀⠀drawing,⠀⠀watching,⠀⠀or⠀⠀none⠀⠀in⠀⠀between.⠀⠀𝕴f⠀⠀i'm⠀⠀with⠀⠀friends,⠀⠀however,⠀⠀it's⠀⠀completely⠀⠀different hehe!!⠀⠀(⁠ ⁠˘⁠ ⁠³⁠˘⁠)⁠♥⠀⠀𝕴⠀⠀sometimes⠀⠀forget⠀⠀pt⠀⠀is⠀⠀open⠀⠀so⠀⠀expect⠀⠀me⠀⠀to⠀⠀disconnect⠀⠀randomly!ㅤ~♡
   <br>
+  <img src="https://files.catbox.moe/up55uk.png" width="470"
 </p>
 
 <br clear="left">
+<br>
+<p align="center">
+<img src="https://files.catbox.moe/2oz7t6.png" width="850" alt="Profile Banner">
+</p>
+<p align="center">
+$$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME ME OUT}} \ \color{#A05C96}{\Large\textsf{FOR THE TYPE QUIRKS IT'S}} \ \color{#FA8CC0}{\Large\textsf{A REF TO THE MANGA I SWEAR}} $$
+
 <br>
 <p align="center">
   <img src="https://files.catbox.moe/vvig1m.png" width="110">
@@ -32,4 +40,8 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/553kbw.png" width="250" alt="Profile Banner">
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
 </p>
