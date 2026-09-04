@@ -36,11 +36,17 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME ME OUT}} \ \color{#A05C96}{\
   <a href="https://d0zing.atabook.org"><img src="https://files.catbox.moe/xit6jz.png" width="120" alt="Link 4"></a>
   <img src="https://files.catbox.moe/vvig1m.png" width="110">
 </p>
-
 <p align="center">
-<img src="https://files.catbox.moe/553kbw.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/hpbgr6.png" width="150" alt="Profile Banner">
+  <img src="https://files.catbox.moe/553kbw.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/31oiol.png" width="150" alt="Profile Banner">
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/b8htos.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/seizdc.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/wa4ouf.png" width="250" alt="Profile Banner">
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
 </p>
