@@ -25,7 +25,7 @@
 <img src="https://files.catbox.moe/muxzo5.png" width="850" alt="Profile Banner">
 </p>
 <p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\textsf{ME OUT FOR THE}} \ \color{#FA8CC0}{\Large\textsf{TYPE QUIRKS IT'S A}} \ \color{#ffebf9}{\Large\textsf{REF TO THE MANGA}} $$
+$$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\textsf{ME OUT FOR THE}} \ \color{#FA8CC0}{\Large\textsf{TYPE QUIRKS IT'S A}} \ \color{#fffaff}{\Large\textsf{REF TO THE MANGA}} $$
 <p align="center">
   <img src="https://files.catbox.moe/2kszmk.png" width="910">
 
