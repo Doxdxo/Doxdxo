@@ -31,12 +31,12 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME ME OUT}} \ \color{#A05C96}{\
 
 <br>
 <p align="center">
-  <img src="https://files.catbox.moe/vvig1m.png" width="110">
+  <img src="https://files.catbox.moe/vvig1m.png" width="100">
   <a href="https://xneogim.straw.page"><img src="https://files.catbox.moe/pvme6b.png" width="155" alt="Link 1"></a>
   <a href="https://pronouns.cc/@jirachix"><img src="https://files.catbox.moe/0edczo.png" width="155" alt="Link 2"></a>
   <a href="https://artsdump.straw.page"><img src="https://files.catbox.moe/saan7e.png" width="155" alt="Link 3"></a>
   <a href="https://d0zing.atabook.org"><img src="https://files.catbox.moe/xit6jz.png" width="155" alt="Link 4"></a>
-  <img src="https://files.catbox.moe/vvig1m.png" width="110">
+  <img src="https://files.catbox.moe/vvig1m.png" width="100">
 </p>
 <p align="center">
   <img src="https://files.catbox.moe/hpbgr6.png" width="150" alt="Profile Banner">
