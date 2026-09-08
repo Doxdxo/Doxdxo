@@ -45,11 +45,16 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\t
 </p>
 
 <p align="center">
+$$ \color{#5E3E6C}{\Large\textsf{⏱: 2:}}\color{#A05C96}{\Large\textsf{24}} \ \color{#FA8CC0}{\Large\textsf{09/08}}\color{#ffffff}{\Large\textsf{/26}} $$
+</p>
+
+<p align="center">
   <img src="https://files.catbox.moe/z4upi0.png" width="1000" alt="Profile Banner">
 </p>
 
-$$ \color{#5E3E6C}{\Large\textsf{Sta}}\color{#A05C96}{\Large\textsf{tus:}} \ \color{#FA8CC0}{\Large\textsf{Draw}}\color{#ffffff}{\Large\textsf{ing.}} $$
 <p align="center">
+$$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \color{#A05C96}{\Large\textsf{Draw}}\color{#5E3E6C}{\Large\textsf{ing.}} $$
+</p>
 
 <p align="center">
   <img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
