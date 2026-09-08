@@ -43,11 +43,13 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\t
   <img src="https://files.catbox.moe/553kbw.png" width="250" alt="Profile Banner">
   <img src="https://files.catbox.moe/31oiol.png" width="150" alt="Profile Banner">
 </p>
+
 <p align="center">
-  <img src="https://files.catbox.moe/b8htos.png" width="250" alt="Profile Banner">
-  <img src="https://files.catbox.moe/seizdc.png" width="250" alt="Profile Banner">
-  <img src="https://files.catbox.moe/wa4ouf.png" width="250" alt="Profile Banner">
+  <img src="https://files.catbox.moe/z4upi0.png" width="1000" alt="Profile Banner">
 </p>
+
+$$ \color{#5E3E6C}{\Large\textsf{Sta}}\color{#A05C96}{\Large\textsf{tus:}} \ \color{#FA8CC0}{\Large\textsf{Draw}}\color{#ffffff}{\Large\textsf{ing.}} $$
+<p align="center">
 
 <p align="center">
   <img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
