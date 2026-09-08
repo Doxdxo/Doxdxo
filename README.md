@@ -7,18 +7,18 @@
 
 <p align="left">
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
-  <img src="https://files.catbox.moe/up55uk.png" width="470"
+  <img src="https://files.catbox.moe/up55uk.png" width="470">
   <br>
-  𝕳ai⠀⠀hai⠀⠀hai⠀⠀hello⠀⠀!!(⁠≧⁠▽⁠≦⁠)⠀⠀𝕴⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me!⠀⠀𝕳owever,⠀⠀please⠀⠀only⠀⠀do⠀⠀so⠀⠀when⠀⠀i'm⠀⠀aloneㅤ~♡
+  𝕳ai⠀⠀hai,⠀⠀𝕴⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me.⠀⠀𝕳owever,⠀⠀please⠀⠀only⠀⠀do⠀⠀so⠀⠀when⠀⠀i'm⠀⠀alone.
   <br>
-  <img src="https://files.catbox.moe/up55uk.png" width="470"
+  <img src="https://files.catbox.moe/up55uk.png" width="470">
   <br>
-  𝕾𝙚𝙭𝙪𝙖𝙡⠀⠀&⠀⠀𝙠𝙮𝙨/𝙠𝙢𝙨⠀⠀𝙖𝙧𝙚⠀⠀𝙤𝙣𝙡𝙮⠀⠀𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚d⠀⠀𝙬𝙞𝙩𝙝⠀⠀𝙛𝙧𝙞𝙚𝙣𝙙𝙨.⠀⠀𝕹o⠀⠀exceptions,⠀⠀cross⠀⠀that⠀⠀line⠀⠀and⠀⠀i'm⠀⠀done⠀⠀talking!⠀⠀(⁠╥⁠﹏⁠╥⁠)
+  𝖂2𝙞⠀⠀at⠀⠀all⠀⠀cost.⠀⠀𝕴⠀⠀am⠀⠀never⠀⠀on⠀⠀pt⠀⠀100%⠀⠀of⠀⠀the⠀⠀time.⠀⠀Usually,⠀⠀I'm⠀⠀either⠀⠀playing,⠀⠀drawing,⠀⠀watching,⠀⠀or⠀⠀none⠀⠀in⠀⠀between.⠀⠀𝕴f⠀⠀i'm⠀⠀with⠀⠀friends,⠀⠀however,⠀⠀it's⠀⠀completely⠀⠀different.⠀⠀𝕴⠀⠀sometimes⠀⠀forget⠀⠀pt⠀⠀is⠀⠀open⠀⠀so⠀⠀expect⠀⠀me⠀⠀to⠀⠀disconnect⠀⠀randomly.
   <br>
-  <img src="https://files.catbox.moe/up55uk.png" width="470"
+  <img src="https://files.catbox.moe/up55uk.png" width="470">
     
   <br>
-  𝖂2𝙞⠀⠀at⠀⠀all⠀⠀cost!⠀⠀𝕴⠀⠀am⠀⠀never⠀⠀on⠀⠀pt⠀⠀100%⠀⠀of⠀⠀the⠀⠀timen⠀⠀Usually,⠀⠀I'm⠀⠀either⠀⠀playing,⠀⠀drawing,⠀⠀watching,⠀⠀or⠀⠀none⠀⠀in⠀⠀between.⠀⠀𝕴f⠀⠀i'm⠀⠀with⠀⠀friends,⠀⠀however,⠀⠀it's⠀⠀completely⠀⠀different hehe!!⠀⠀(⁠ ⁠˘⁠ ⁠³⁠˘⁠)⁠♥⠀⠀𝕴⠀⠀sometimes⠀⠀forget⠀⠀pt⠀⠀is⠀⠀open⠀⠀so⠀⠀expect⠀⠀me⠀⠀to⠀⠀disconnect⠀⠀randomly!ㅤ~♡
+  𝕾𝙚𝙭𝙪𝙖𝙡⠀⠀&⠀⠀𝙠𝙮𝙨/𝙠𝙢𝙨⠀⠀𝙖𝙧𝙚⠀⠀𝙤𝙣𝙡𝙮⠀⠀𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚d⠀⠀𝙬𝙞𝙩𝙝⠀⠀𝙛𝙧𝙞𝙚𝙣𝙙𝙨.⠀⠀𝕹o⠀⠀exceptions,⠀⠀cross⠀⠀that⠀⠀line⠀⠀and⠀⠀i'm⠀⠀done⠀⠀talking.
   <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
 </p>
@@ -27,10 +27,6 @@
 <p align="center">
 <img src="https://files.catbox.moe/muxzo5.png" width="850" alt="Profile Banner">
 </p>
-<p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\textsf{ME OUT FOR THE}} \ \color{#FA8CC0}{\Large\textsf{TYPING QUIRKS IT'S A}} \ \color{#ffffff}{\Large\textsf{REF TO THE MANGA}} $$
-<p align="center">
-  <img src="https://files.catbox.moe/2kszmk.png" width="910">
 
 <br>
 <p align="center">
@@ -48,6 +44,9 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\t
 </p>
 
 <p align="center">
+  <img src="https://files.catbox.moe/2kszmk.png" width="910">
+
+<p align="center">
 $$ \color{#5E3E6C}{\Large\textsf{⏱: 2:}}\color{#A05C96}{\Large\textsf{24}}\color{#FA8CC0}{\Large\textsf{pm}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{08/26}} $$
 </p>
 
@@ -60,5 +59,4 @@ $$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \co
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/kp3nhn.png" width="250" alt="Profile Banner">
-</p>
+  <img src="https://files.catbox.moe/2kszmk.png" width="910">
