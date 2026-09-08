@@ -51,7 +51,7 @@ $$ \color{#5E3E6C}{\Large\textsf{⏱: 7:}}\color{#A05C96}{\Large\textsf{03}}\col
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/z4upi0.png" width="1000" alt="Profile Banner">
+  <img src="https://files.catbox.moe/eq80pn.png" width="1000" alt="Profile Banner">
 </p>
 
 <p align="center">
@@ -59,4 +59,4 @@ $$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \co
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/eq80pn.png" width="910">
+  <img src="" width="910">
