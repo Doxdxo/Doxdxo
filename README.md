@@ -3,7 +3,7 @@
 </p>
 
 　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
-                                    ![](https://img.shields.io/badge/ESPERS-11,504-A05C96?labelColor=white)
+                                    ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
 
 <p align="left">
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
