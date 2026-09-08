@@ -9,16 +9,16 @@
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
   <img src="https://files.catbox.moe/up55uk.png" width="470">
   <br>
-  𝕳ai⠀⠀hai,⠀⠀𝕴⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me.⠀⠀𝕳owever,⠀⠀please⠀⠀only⠀⠀do⠀⠀so⠀⠀when⠀⠀i'm⠀⠀alone.
+  𝓗ai⠀⠀hai,⠀⠀𝓘⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me.⠀⠀𝓘f⠀⠀i'm⠀⠀already⠀⠀accompanied⠀⠀by⠀⠀my⠀⠀friends,⠀⠀feel⠀⠀free⠀⠀to⠀⠀whisper⠀⠀us⠀⠀to⠀⠀join⠀⠀the⠀⠀pile.
   <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470">
   <br>
-  𝖂2𝙞⠀⠀at⠀⠀all⠀⠀cost.⠀⠀𝕴⠀⠀am⠀⠀never⠀⠀on⠀⠀pt⠀⠀100%⠀⠀of⠀⠀the⠀⠀time.⠀⠀Usually,⠀⠀I'm⠀⠀either⠀⠀playing,⠀⠀drawing,⠀⠀watching,⠀⠀or⠀⠀none⠀⠀in⠀⠀between.⠀⠀𝕴f⠀⠀i'm⠀⠀with⠀⠀friends,⠀⠀however,⠀⠀it's⠀⠀completely⠀⠀different.⠀⠀𝕴⠀⠀sometimes⠀⠀forget⠀⠀pt⠀⠀is⠀⠀open⠀⠀so⠀⠀expect⠀⠀me⠀⠀to⠀⠀disconnect⠀⠀randomly.
+  𝓦2𝙞⠀⠀at⠀⠀all⠀⠀cost,⠀⠀i⠀⠀am⠀⠀never⠀⠀on⠀⠀pt⠀⠀100%⠀⠀of⠀⠀the⠀⠀time⠀⠀and⠀⠀i⠀⠀may⠀⠀miss⠀⠀some⠀⠀private⠀⠀messages.⠀⠀Usually⠀⠀I'm⠀⠀either⠀⠀playing,⠀⠀drawing,⠀⠀watching,⠀⠀or⠀⠀none⠀⠀in⠀⠀between.⠀⠀𝓘f⠀⠀i'm⠀⠀with⠀⠀friends,⠀⠀however,⠀⠀it's⠀⠀completely⠀⠀different.⠀⠀𝓘⠀⠀sometimes⠀⠀forget⠀⠀pt⠀⠀is⠀⠀open⠀⠀so⠀⠀expect⠀⠀me⠀⠀to⠀⠀disconnect⠀⠀randomly.
   <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470">
     
   <br>
-  𝕾𝙚𝙭𝙪𝙖𝙡⠀⠀&⠀⠀𝙠𝙮𝙨/𝙠𝙢𝙨⠀⠀𝙖𝙧𝙚⠀⠀𝙤𝙣𝙡𝙮⠀⠀𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚d⠀⠀𝙬𝙞𝙩𝙝⠀⠀𝙛𝙧𝙞𝙚𝙣𝙙𝙨.⠀⠀𝕹o⠀⠀exceptions,⠀⠀cross⠀⠀that⠀⠀line⠀⠀and⠀⠀i'm⠀⠀done⠀⠀talking.
+  𝓢𝙚𝙭𝙪𝙖𝙡⠀⠀&⠀⠀𝙠𝙮𝙨/𝙠𝙢𝙨⠀⠀𝙟𝙤𝙠𝙚𝙨⠀⠀𝙖𝙧𝙚⠀⠀𝙤𝙣𝙡𝙮⠀⠀𝙩𝙤𝙡𝙚𝙧𝙖𝙩𝙚d⠀⠀𝙬𝙞𝙩𝙝⠀⠀𝙛𝙧𝙞𝙚𝙣𝙙𝙨.⠀⠀𝓝o⠀⠀exceptions,⠀⠀cross⠀⠀that⠀⠀line⠀⠀and⠀⠀i'm⠀⠀done⠀⠀talking.
   <br>
   <img src="https://files.catbox.moe/up55uk.png" width="470"
 </p>
