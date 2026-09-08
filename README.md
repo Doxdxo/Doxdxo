@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/qn46os.png" width="950" alt="Profile Banner">
 </p>
 
-　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES_BOUGHT:&style=flat-square)
+　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
                                     ![](https://img.shields.io/badge/ESPERS-11,504-A05C96?labelColor=white)
 
 <p align="left">
