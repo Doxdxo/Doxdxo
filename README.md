@@ -47,7 +47,7 @@
   <img src="https://files.catbox.moe/2kszmk.png" width="910">
 
 <p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{⏱: 2:}}\color{#A05C96}{\Large\textsf{24}}\color{#FA8CC0}{\Large\textsf{pm}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{08/26}} $$
+$$ \color{#5E3E6C}{\Large\textsf{⏱: 7:}}\color{#A05C96}{\Large\textsf{03}}\color{#FA8CC0}{\Large\textsf{pm}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{08/26}} $$
 </p>
 
 <p align="center">
@@ -59,4 +59,4 @@ $$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \co
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/2kszmk.png" width="910">
+  <img src="https://files.catbox.moe/eq80pn.png" width="910">
