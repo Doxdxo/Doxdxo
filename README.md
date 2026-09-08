@@ -45,7 +45,7 @@ $$ \color{#5E3E6C}{\Large\textsf{PLEASE DON'T SLIME}} \ \color{#A05C96}{\Large\t
 </p>
 
 <p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{⏱: 2:}}\color{#A05C96}{\Large\textsf{24}} \ \color{#FA8CC0}{\Large\textsf{09/08}}\color{#ffffff}{\Large\textsf{/26}} $$
+$$ \color{#5E3E6C}{\Large\textsf{⏱: 2:}}\color{#A05C96}{\Large\textsf{24}}\color{#FA8CC0}{\Large\textsf{pm}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{08/26}} $$
 </p>
 
 <p align="center">
