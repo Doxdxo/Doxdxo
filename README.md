@@ -2,7 +2,8 @@
 <img src="https://files.catbox.moe/qn46os.png" width="950" alt="Profile Banner">
 </p>
 
-　　　   　　　　　   　　　　　   　　　　　   　　 　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​🇨​​🇴​​🇫​​🇫​​🇪​​🇪​_🇯​​🇪​​🇱​​🇱​​🇮​​🇪​​🇸​&style=flat-square)
+　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES_BOUGHT:&style=flat-square)
+                                    ![](https://img.shields.io/badge/ESPERS-11,504-A05C96?labelColor=white)
 
 <p align="left">
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
