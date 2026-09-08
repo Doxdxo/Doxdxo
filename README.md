@@ -59,4 +59,4 @@ $$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \co
 </p>
 
 <p align="center">
-  <img src="" width="910">
+  <img src="https://files.catbox.moe/vvig1m.png" width="120">
