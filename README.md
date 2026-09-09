@@ -55,7 +55,7 @@ $$ \color{#5E3E6C}{\Large\textsf{⏱: 7:}}\color{#A05C96}{\Large\textsf{03}}\col
 </p>
 
 <p align="center">
-$$ \color{#ffffff}{\Large\textsf{Sta}}\color{#FA8CC0}{\Large\textsf{tus:}} \ \color{#A05C96}{\Large\textsf{Draw}}\color{#5E3E6C}{\Large\textsf{ing.}} $$
+$$ \color{#ffffff}{\Large\textsf{Yes, i}} \ \color{#FA8CC0}{\Large\textsf{update}} \ \color{#A05C96}{\Large\textsf{everytime i}} \ \color{#5E3E6C}{\Large\textsf{do something.}} $$
 </p>
 
 <p align="center">
