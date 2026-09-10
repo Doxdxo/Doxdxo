@@ -47,11 +47,11 @@
   <img src="https://files.catbox.moe/2kszmk.png" width="910">
 
 <p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{⏱: 7:}}\color{#A05C96}{\Large\textsf{03}}\color{#FA8CC0}{\Large\textsf{pm}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{08/26}} $$
+$$ \color{#5E3E6C}{\Large\textsf{⏱:  1:}}\color{#A05C96}{\Large\textsf{47}}\color{#FA8CC0}{\Large\textsf{am}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{09/11}} $$
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/eq80pn.png" width="1000" alt="Profile Banner">
+  <img src="https://litter.catbox.moe/g840txdl0wwr4nvw.png" width="1000" alt="Profile Banner">
 </p>
 
 <p align="center">
