@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/qn46os.png" width="950" alt="Profile Banner">
+<img src="https://files.catbox.moe/qn46os.png" width="850" alt="Profile Banner">
 </p>
 
 　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
@@ -25,7 +25,7 @@
 
 <br clear="left">
 <p align="center">
-<img src="https://files.catbox.moe/muxzo5.png" width="850" alt="Profile Banner">
+<img src="https://files.catbox.moe/2kszmk.png" width="750" alt="Profile Banner">
 </p>
 
 <br>
@@ -44,7 +44,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/2kszmk.png" width="910">
+  <img src="https://files.catbox.moe/muxzo5.png" width="910">
 
 <p align="center">
 $$ \color{#5E3E6C}{\Large\textsf{⏱:  1:}}\color{#A05C96}{\Large\textsf{47}}\color{#FA8CC0}{\Large\textsf{am}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{09/11}} $$
