@@ -30,10 +30,10 @@
 
 <br>
 <p align="center">
-  <a href="https://kusuosai.straw.page"><img src="https://files.catbox.moe/pvme6b.png" width="220" alt="Link 1"></a>
-  <a href="https://pronouns.cc/@saiki.kusuo"><img src="https://files.catbox.moe/0edczo.png" width="220" alt="Link 2"></a>
-  <a href="https://artsdump.straw.page"><img src="https://files.catbox.moe/saan7e.png" width="220" alt="Link 3"></a>
-  <a href="https://d0zing.atabook.org"><img src="https://files.catbox.moe/xit6jz.png" width="220" alt="Link 4"></a>
+  <a href="https://kusuosai.straw.page"><img src="https://files.catbox.moe/pvme6b.png" width="200" alt="Link 1"></a>
+  <a href="https://pronouns.cc/@saiki.kusuo"><img src="https://files.catbox.moe/0edczo.png" width="200" alt="Link 2"></a>
+  <a href="https://artsdump.straw.page"><img src="https://files.catbox.moe/saan7e.png" width="200" alt="Link 3"></a>
+  <a href="https://d0zing.atabook.org"><img src="https://files.catbox.moe/xit6jz.png" width="200" alt="Link 4"></a>
 </p>
 <p align="center">
   <img src="https://files.catbox.moe/hpbgr6.png" width="150" alt="Profile Banner">
