@@ -2,8 +2,16 @@
 <img src="https://files.catbox.moe/qn46os.png" width="850" alt="Profile Banner">
 </p>
 
-　　　   　　　　　   　　　　　   　　　　   　　　![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
+　　　   　　　　　   　　　　　   　　　　   　　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
                                     ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
+<p align="center">
+$$ \color{#5E3E6C}{\large\textsf{pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
+</p>
+<p align="center">
+  <a href="https://github.com/PT-FANtastic-Hall">@pt-FANtastic-Hall</a>
+  <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a>
+  <a href="https://github.com/pt-heavyfictkin">@pt-heavyficktkin</a>
+</p>
 
 <p align="left">
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
