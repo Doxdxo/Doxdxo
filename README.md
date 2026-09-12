@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/qn46os.png" width="850" alt="Profile Banner">
 </p>
 
-　　　   　　　　　   　　　　　   　　　　   　　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
+　　　   　　　　　   　　　　　   　　　　   　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
                                     ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
 <p align="center">
 $$ \color{#5E3E6C}{\large\textsf{pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
