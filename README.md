@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/qn46os.png" width="850" alt="Profile Banner">
+<img src="https://files.catbox.moe/t1oq9k.png" width="850" alt="Profile Banner">
 </p>
 
 　　　   　　　　　   　　　　　   　　　　   　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
