@@ -5,7 +5,7 @@
 　　　   　　　　　   　　　　　   　　　　   　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
                                     ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
 <p align="center">
-$$ \color{#5E3E6C}{\large\textsf{pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
+$$ \color{#5E3E6C}{\large\textsf{my pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
 </p>
 <p align="center">
   <a href="https://github.com/PT-FANtastic-Hall">@pt-FANtastic-Hall</a>
