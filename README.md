@@ -12,6 +12,7 @@ $$ \color{#5E3E6C}{\large\textsf{pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
   <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a>
   <a href="https://github.com/pt-heavyfictkin">@pt-heavyficktkin</a>
   <a href="https://github.com/pt-icon">@pt-icon</a>
+  <a href="https://github.com/kaotown">@kaotown</a>
 </p>
 
 <p align="left">
