@@ -13,6 +13,7 @@ $$ \color{#5E3E6C}{\large\textsf{my pt a}}\color{#A05C96}{\large\textsf{wards:}}
   <a href="https://github.com/pt-heavyfictkin">@pt-heavyficktkin</a>
   <a href="https://github.com/pt-icon">@pt-icon</a>
   <a href="https://github.com/kaotown">@kaotown</a>
+  <a href="https://github.com/Ponytowns-rewards">@ponytowns-rewards</a>
 </p>
 
 <p align="left">
