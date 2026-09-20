@@ -4,18 +4,24 @@
 
 　　　   　　　　　   　　　　　   　　　　   　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
                                     ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
-<p align="center">
-$$ \color{#5E3E6C}{\large\textsf{my pt a}}\color{#A05C96}{\large\textsf{wards:}} $$
-</p>
-<p align="center">
-  <a href="https://github.com/PT-FANtastic-Hall">@pt-FANtastic-Hall</a>
-  <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a>
-  <a href="https://github.com/pt-heavyfictkin">@pt-heavyficktkin</a>
-  <a href="https://github.com/pt-icon">@pt-icon</a>
-  <a href="https://github.com/kaotown">@kaotown</a>
-  <a href="https://github.com/Ponytowns-rewards">@ponytowns-rewards</a>
-  <a href="https://github.com/choco-town">@choco-town</a>
-</p>
+<details>
+<summary>$\textcolor{#FA8CC0}{\text{tha}}\color{#A05C96}{\textsf{nk}} \ \color{#5E3E6C}{\textsf{youㅤ♡}}$</summary>
+
+<br>
+
+<div align="center">
+
+[@choco-town](https://github.com/choco-town)
+[@pt-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
+[@pt-ship-nominations](https://github.com/pt-ship-nominations)
+[@kaotowm](https://github.com/kaotown)
+[@ponytowns-rewards](https://github.com/Ponytown-rewards)
+[@pt-icon](https://github.com/pt-icon)
+[@pt-heavyficktkin](https://github.com/pt-heavyfictkin)
+
+</div>
+
+</details>
 
 <p align="left">
 <img src="https://files.catbox.moe/3s1y9g.png" align="left" width="350" style="margin-right: 15px;" />
