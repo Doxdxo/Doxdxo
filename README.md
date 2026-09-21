@@ -15,7 +15,7 @@
 [@pt-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
 [@pt-ship-nominations](https://github.com/pt-ship-nominations)
 [@kaotowm](https://github.com/kaotown)
-[@ponytowns-rewards](https://github.com/Ponytown-rewards)
+[@ponytowns-rewards](https://github.com/Ponytowns-rewards)
 [@pt-icon](https://github.com/pt-icon)
 [@pt-heavyficktkin](https://github.com/pt-heavyfictkin)
 
