@@ -62,17 +62,3 @@
 <p align="center">
   <img src="https://files.catbox.moe/muxzo5.png" width="910">
 
-<p align="center">
-$$ \color{#5E3E6C}{\Large\textsf{⏱:  1:}}\color{#A05C96}{\Large\textsf{47}}\color{#FA8CC0}{\Large\textsf{am}} \ \color{#FA8CC0}{\Large\textsf{09/}}\color{#ffffff}{\Large\textsf{09/11}} $$
-</p>
-
-<p align="center">
-  <img src="https://litter.catbox.moe/g840txdl0wwr4nvw.png" width="1000" alt="Profile Banner">
-</p>
-
-<p align="center">
-$$ \color{#ffffff}{\Large\textsf{Yes, i}} \ \color{#FA8CC0}{\Large\textsf{update}} \ \color{#A05C96}{\Large\textsf{everytime i}} \ \color{#5E3E6C}{\Large\textsf{do something.}} $$
-</p>
-
-<p align="center">
-  <img src="https://files.catbox.moe/vvig1m.png" width="120">
