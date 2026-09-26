@@ -24,7 +24,7 @@
 </details>
 
 <p align="left">
-<img src="https://files.catbox.moe/3s1y9g.png" align="left" width="295" style="margin-right: 15px;" />
+<img src="https://files.catbox.moe/3s1y9g.png" align="left" width="285" style="margin-right: 15px;" />
   <img src="https://files.catbox.moe/up55uk.png" width="370">
   <br>
   𝓗ai⠀⠀hai,⠀⠀𝓘⠀⠀love⠀⠀cuds⠀⠀and⠀⠀the⠀⠀companies⠀⠀of⠀⠀others⠀⠀so⠀⠀don't⠀⠀hesitate⠀⠀to⠀⠀come⠀⠀up⠀⠀and⠀⠀c*h⠀⠀me.⠀⠀𝓘f⠀⠀i'm⠀⠀already⠀⠀accompanied⠀⠀by⠀⠀my⠀⠀friends,⠀⠀feel⠀⠀free⠀⠀to⠀⠀whisper⠀⠀us⠀⠀to⠀⠀join⠀⠀the⠀⠀pile.
