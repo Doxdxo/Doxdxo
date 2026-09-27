@@ -14,3 +14,22 @@
 <img src="https://files.catbox.moe/919tc1.png" width="400" alt="Profile Banner">
   <img src="https://files.catbox.moe/puipdk.png" width="130">
 </p>
+
+<details>
+<summary>$\textcolor{#ED95A7}{\text{th}}\color{#C36CA5}{\textsf{ank}} \ \color{#764AA2}{\textsf{youㅤ♡}}$</summary>
+
+<br>
+
+<div align="center">
+
+[@choco-town](https://github.com/choco-town)
+[@pt-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
+[@pt-ship-nominations](https://github.com/pt-ship-nominations)
+[@kaotowm](https://github.com/kaotown)
+[@ponytowns-rewards](https://github.com/Ponytowns-rewards)
+[@pt-icon](https://github.com/pt-icon)
+[@pt-heavyficktkin](https://github.com/pt-heavyfictkin)
+
+</div>
+
+</details>
