@@ -46,7 +46,7 @@
 
 <br>
 <p align="center">
-  <a href="https://kusuosai.straw.page"><img src="https://files.catbox.moe/pvme6b.png" width="150" alt="Link 1"></a>
+  <a href="https://sasumatoes.straw.page"><img src="https://files.catbox.moe/pvme6b.png" width="150" alt="Link 1"></a>
   <a href="https://pronouns.cc/@saiki.kusuo"><img src="https://files.catbox.moe/0edczo.png" width="150" alt="Link 2"></a>
   <a href="https://artsdump.straw.page"><img src="https://files.catbox.moe/saan7e.png" width="150" alt="Link 3"></a>
   <a href="https://d0zing.atabook.org"><img src="https://files.catbox.moe/xit6jz.png" width="150" alt="Link 4"></a>
