@@ -3,7 +3,7 @@
 </p>
 
 　　　   　　　　　   　　　　　   　　　　   　　　　　　 ![](https://komarev.com/ghpvc/?username=Doxdxo&color=5E3E6C&label=​COFFEE_JELLIES&style=flat-square)
-                                    ![](https://img.shields.io/badge/ESPERS-4-A05C96?labelColor=white)
+                                    ![](https://img.shields.io/badge/ESPERS-3(1)-A05C96?labelColor=white)
 <details>
 <summary>$\textcolor{#FA8CC0}{\text{tha}}\color{#A05C96}{\textsf{nk}} \ \color{#5E3E6C}{\textsf{youㅤ♡}}$</summary>
 
