@@ -19,6 +19,7 @@
 [@pt-icon](https://github.com/pt-icon)
 [@pt-heavyficktkin](https://github.com/pt-heavyfictkin)
 [@music-town](https://github.com/music-town)
+[@pt-everypony](https://github.com/pt-everypony)
 
 </div>
 
